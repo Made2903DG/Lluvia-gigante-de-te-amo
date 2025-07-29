@@ -1,1 +1,1 @@
-# Para-mi-ni-o-
+# Paraminiño
